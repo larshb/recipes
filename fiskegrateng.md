@@ -41,7 +41,7 @@
 11. Bland alt sammen i formen
 12. Strø over kavringen
 13. Legg noen skiver smør på toppen
-14. Stekes i en time på nest nederste rille
+14. Stekes i en time på nest nederste rille.
     Om formen er smal må gratengen stå litt til (10 min, eller så lenge den er bløt inni)
 
 God middag!
